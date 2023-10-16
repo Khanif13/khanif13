@@ -1,4 +1,3 @@
-#BIO
 - 👋 Hi, I’m Ahmad Khanif Izzah Arifin
 - 👀 I’m interested in learn about programming
 - 🌱 I’m currently learning java language
