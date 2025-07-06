@@ -1,5 +1,5 @@
 # 💫 About Me:
-🌱 I’m currently learning Mobile Developing<br><br>📫 How to reach me ahmadhanif13125@gmail.com<br><br>⚡ Fun fact I think i am funny<br>
+🌱 I’m currently learning Mobile Developing<br><br>📫 How to reach me ahmadkhanifizzaharifin@gmail.com<br><br>⚡ Fun fact I think i am funny<br>
 
 
 ## 🌐 Socials:
